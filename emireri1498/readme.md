@@ -1,6 +1,6 @@
 # I am, emireri1498.
 In this folder, there will be things i wish to share, whether it be a old Block Mesa related project or generally SC3.
-              
+There may also be nothing else in this folder, in that case i ask you to be patient.
 
 My goodbye message:
 
